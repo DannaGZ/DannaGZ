@@ -1,3 +1,6 @@
+UN POCO SOBRE MI 
+------------------------------------
+
 - 👋 HOLA, SOY @DannaGZ
 - 👀 Estoy interesada en todo aquello que tiene que ver con la música, paleontología, bilogía y diversos temas.
 - 🌱 Por el momento estoy aprendiendo sobre varios temas, entre ellos: astrología y programación. 
@@ -5,7 +8,7 @@
 - 📫 @chemi_gz y Danna Gonz en Facebook https://www.facebook.com/profile.php?id=100084978085411&mibextid=ZbWKwL
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: me gustan los días lluviosos solo para tomar chocolate caliente.
-
+-----------------------------------------
 - HELLO, I'M @DannaGZ
 - 👀 I am interested in everything that has to do with music, paleontology, biology and various topics.
 - 🌱 At the moment I am learning about several topics, including: astrology and HTML code
