@@ -1,4 +1,4 @@
-- 👋 HOlA, SOY @DannaGZ
+- 👋 HOLA, SOY @DannaGZ
 - 👀 Estoy interesada en todo aquello que tiene que ver con la música, paleontología, bilogía y diversos temas.
 - 🌱 Por el momento estoy aprendiendo sobre varios temas, entre ellos: astrología y programación. 
 - 💞️ Espero que con el tiempo pueda colaborar con más gente y realizar proyectos para mis propias páginas web.
